@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **rohitbrijwasi909@gmail.com**
 
-- 📄 Know about my experiences [https://docs.google.com/document/d/1ksJ_Sco2Xt3Eq9uMG3iZhYJ0ZbgExOEb/edit?usp=sharing&ouid=101185537108305440512&rtpof=true&sd=true](https://docs.google.com/document/d/1ksJ_Sco2Xt3Eq9uMG3iZhYJ0ZbgExOEb/edit?usp=sharing&ouid=101185537108305440512&rtpof=true&sd=true)
+- 📄 Know about my experiences https://drive.google.com/drive/folders/10SmxV6Ul6UT2SRzRgjNgLREcBJbl3quD?usp=drive_link
 
 - ⚡ Fun fact **I am Awesome**
 
